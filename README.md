@@ -11,7 +11,7 @@
 - Software Engineer at Shibuya, Tokyo
 
 ## Link
-- [Twitter](https://twitter.com/rayosu)
+- [Twitter](https://twitter.com/raryosu)
 - [Facebook](https://facebook.com/raryosu107)
 - [Instagram](https://instagram.com/raryosu107)
 
