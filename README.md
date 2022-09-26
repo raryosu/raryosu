@@ -8,7 +8,7 @@
 
 - Hagihara Ryosuke
 - a.k.a. Raryosu
-- Software Engineer at Shibuya, Tokyo
+- Software Engineer at Fukuoka, Tokyo
 
 ## Link
 - [Twitter](https://twitter.com/raryosu)
